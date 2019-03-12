@@ -10,4 +10,4 @@ J’ai montré mon chef d’oeuvre aux grandes personnes et je leur ai demandé 
 
 Elles m’ont répondu: “Porquoi un chapeau ferait-il peur?”
 
-Mon dessin ne représentait pas un chapeau. Il représentait un serpent boa qui digérait un éléphant.
+Mon dessin ne représentait pas un chapeau. Il représentait un serpent boa qui digérait un éléphant. J’ai alors dessiné l’intérieur du serpent boa, afin que les grandes personnes puissent comprendre. Elles ont toujours besoin d’explications. Mon dessin numéro 2 était comme ca:
