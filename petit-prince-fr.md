@@ -11,3 +11,5 @@ J’ai montré mon chef d’oeuvre aux grandes personnes et je leur ai demandé 
 Elles m’ont répondu: “Porquoi un chapeau ferait-il peur?”
 
 Mon dessin ne représentait pas un chapeau. Il représentait un serpent boa qui digérait un éléphant. J’ai alors dessiné l’intérieur du serpent boa, afin que les grandes personnes puissent comprendre. Elles ont toujours besoin d’explications. Mon dessin numéro 2 était comme ca:
+
+Les grandes personnes m’ont conseillé de laisser de côté les dessins de serpents boas ouverts ou fermés, et de m’interesser plutôt à la geographie, à l’histoire, au calcul et à la grammaire. C’est ainsi que j’ai abandonné, à l’âge de six ans, une magnifique carrière de peinture.
