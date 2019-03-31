@@ -16,4 +16,4 @@ Les grandes personnes m’ont conseillé de laisser de côté les dessins de ser
 
 J’ais donc dû choisir un autre métier et j’ai appris à piloter des avions. J’ai volé un peu partout dans le monde. Et la géographie, c’est exact, m’a beaucoup servi. Je savais reconnaître, de premier coupe d’oeil, la Chine de l’Arizona. C’est utile, si l’on est égaré pendant la nuit.
 
-J’ai ainsi eu, au cours de ma vie, das tas de contacts avec des tas de gens sérieux. J’ai beaucoup vécu chez les grandes personnes.
+J’ai ainsi eu, au cours de ma vie, das tas de contacts avec des tas de gens sérieux. J’ai beaucoup vécu chez les grandes personnes. Je les ai vues de très près. Ça n’a pas trop amélioré mon opinion.
