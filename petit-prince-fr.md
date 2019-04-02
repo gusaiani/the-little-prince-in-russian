@@ -17,3 +17,5 @@ Les grandes personnes m’ont conseillé de laisser de côté les dessins de ser
 J’ais donc dû choisir un autre métier et j’ai appris à piloter des avions. J’ai volé un peu partout dans le monde. Et la géographie, c’est exact, m’a beaucoup servi. Je savais reconnaître, de premier coupe d’oeil, la Chine de l’Arizona. C’est utile, si l’on est égaré pendant la nuit.
 
 J’ai ainsi eu, au cours de ma vie, das tas de contacts avec des tas de gens sérieux. J’ai beaucoup vécu chez les grandes personnes. Je les ai vues de très près. Ça n’a pas trop amélioré mon opinion.
+
+Quand j’en rencontrais une qui me paraissait un peu lucide, je faisait l’expérience sur elle de mon dessin no. 1 que j’ai toujours conservé. Je voulais savoir si elle était vraiment compréhensive. Mais toujours elle me répondait: “C’est un chapeau.” Alors je ne lui parlais ni de serpents boas, ni de forêts vierges, ni d’étoiles. Je me mettais à sa portée.
