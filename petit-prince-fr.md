@@ -1,5 +1,7 @@
 Le Petit Prince
 
+1
+
 Lorsque j’avais six ans j’ai vu, une fois, une magnifique image, dans un livre sur la Forêt Vierge qui s’appelait “Histories Vécues”. Ca représentait un serpent boa qui avalait un fauve. Voilà la copie du dessin.
 
 On disait dans le livre: “Les serpents boas avalent leur proie tout entière, sans la mâcher. Ensuite ils ne peuvent plus bouger et ils dorment pendant les six mois de leur digestion”.
@@ -18,4 +20,8 @@ J’ais donc dû choisir un autre métier et j’ai appris à piloter des avions
 
 J’ai ainsi eu, au cours de ma vie, das tas de contacts avec des tas de gens sérieux. J’ai beaucoup vécu chez les grandes personnes. Je les ai vues de très près. Ça n’a pas trop amélioré mon opinion.
 
-Quand j’en rencontrais une qui me paraissait un peu lucide, je faisait l’expérience sur elle de mon dessin no. 1 que j’ai toujours conservé. Je voulais savoir si elle était vraiment compréhensive. Mais toujours elle me répondait: “C’est un chapeau.” Alors je ne lui parlais ni de serpents boas, ni de forêts vierges, ni d’étoiles. Je me mettais à sa portée.
+Quand j’en rencontrais une qui me paraissait un peu lucide, je faisait l’expérience sur elle de mon dessin no. 1 que j’ai toujours conservé. Je voulais savoir si elle était vraiment compréhensive. Mais toujours elle me répondait: “C’est un chapeau.” Alors je ne lui parlais ni de serpents boas, ni de forêts vierges, ni d’étoiles. Je me mettais à sa portée. Je lui parlais de bridge, de golf, de politique et de cravates. Et la grande personne était bien contente de connâitre un homme aussi raisonable.
+
+2
+
+J’ai ansi vécu seul, sans personne avec qui parler véritablement, jusqu’à une une panne dans le désert du Sahara, il y a six ans.
