@@ -24,4 +24,4 @@ Quand j’en rencontrais une qui me paraissait un peu lucide, je faisait l’exp
 
 2
 
-J’ai ansi vécu seul, sans personne avec qui parler véritablement, jusqu’à une une panne dans le désert du Sahara, il y a six ans.
+J’ai ansi vécu seul, sans personne avec qui parler véritablement, jusqu’à une une panne dans le désert du Sahara, il y a six ans. Quelque chose s’était cassé dans mon moteur
