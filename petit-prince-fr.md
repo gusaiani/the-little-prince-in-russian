@@ -24,4 +24,6 @@ Quand j’en rencontrais une qui me paraissait un peu lucide, je faisait l’exp
 
 2
 
-J’ai ansi vécu seul, sans personne avec qui parler véritablement, jusqu’à une une panne dans le désert du Sahara, il y a six ans. Quelque chose s’était cassé dans mon moteur, et comme je n’avais avec moi ni méchanicien, ni passagers, je me préparai à essayer de réussir, tout seul, une réparation difficile.
+J’ai ansi vécu seul, sans personne avec qui parler véritablement, jusqu’à une une panne dans le désert du Sahara, il y a six ans. Quelque chose s’était cassé dans mon moteur, et comme je n’avais avec moi ni méchanicien, ni passagers, je me préparai à essayer de réussir, tout seul, une réparation difficile. C’était pour moi une question de vie ou de mort. J’avais à peine de l’eau à boire pour huit jours.
+
+Le premier soir je me suis donc endormi sur le sable à mille milles de toute terre habitée.
