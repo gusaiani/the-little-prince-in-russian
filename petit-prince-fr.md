@@ -26,4 +26,12 @@ Quand j’en rencontrais une qui me paraissait un peu lucide, je faisait l’exp
 
 J’ai ansi vécu seul, sans personne avec qui parler véritablement, jusqu’à une une panne dans le désert du Sahara, il y a six ans. Quelque chose s’était cassé dans mon moteur, et comme je n’avais avec moi ni méchanicien, ni passagers, je me préparai à essayer de réussir, tout seul, une réparation difficile. C’était pour moi une question de vie ou de mort. J’avais à peine de l’eau à boire pour huit jours.
 
-Le premier soir je me suis donc endormi sur le sable à mille milles de toute terre habitée. J’étais bien plus isolé qu’un naufragé sur un rideau au milieu de l’océan.
+Le premier soir je me suis donc endormi sur le sable à mille milles de toute terre habitée. J’étais bien plus isolé qu’un naufragé sur un rideau au milieu de l’océan. Alors vous imaginez ma surprise, au levé du jour, quand une drôle de petite voix m’a réveillé. Elle disait:
+
+— S’il vous plaît, dessine-moi un mouton!
+
+– Hein?
+
+– Dessine-moi un mouton…
+
+J’ai sauté sur mes pieds comme si j’avais été frappé par la foudre.
