@@ -34,4 +34,4 @@ Le premier soir je me suis donc endormi sur le sable à mille milles de toute te
 
 – Dessine-moi un mouton…
 
-J’ai sauté sur mes pieds comme si j’avais été frappé par la foudre. J’ai bien frotté mes yeux. J’ai bien regardé.
+J’ai sauté sur mes pieds comme si j’avais été frappé par la foudre. J’ai bien frotté mes yeux. J’ai bien regardé. Et j’ai vu un petit bonhomme tout à fait extraordinaire qui me considérait gravement.
