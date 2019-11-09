@@ -35,3 +35,5 @@ Le premier soir je me suis donc endormi sur le sable à mille milles de toute te
 – Dessine-moi un mouton…
 
 J’ai sauté sur mes pieds comme si j’avais été frappé par la foudre. J’ai bien frotté mes yeux. J’ai bien regardé. Et j’ai vu un petit bonhomme tout à fait extraordinaire qui me considérait gravement. Voilà le meilleur portrait que, plus tard, j’ai réussi à faire de lui. Mais mon dessin, bien sur, est beacoup moins ravissant que le modèle. Сe n’est pas de ma faute. J’avais été découragé dans ma carrière de peintre par les grandes personnes, à l’age de six ans, et je n’avais rien appris à dessiner, sauf les boas fermés et les boas ouverts.
+
+Je regardai donc cette apparition avec des yeux tout ronds d’étonnement.
