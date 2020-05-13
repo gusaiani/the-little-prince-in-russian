@@ -44,4 +44,10 @@ Et il me répéta alors, tout doucement, comme une chose très sérieuse:
 
 – S'il vous plaît… dessine-moi un mouton…
 
-Quand le mystère est trop impressionant, on n’ose pas désobéir. Aussi absurde que cela me semblaît à mille milles de tous les endroits habités et en danger de mort, je sortis de ma poche une feuille de papier et un stylographe. Mais je me rappelai alors que j’avais surtout étudié la géographie, l’histoire, le calcul et la grammaire et je dis au petit bonhomme (avec un peu de mauvaise humeur) que je ne savais pas dessiner.
+Quand le mystère est trop impressionant, on n’ose pas désobéir. Aussi absurde que cela me semblaît à mille milles de tous les endroits habités et en danger de mort, je sortis de ma poche une feuille de papier et un stylographe. Mais je me rappelai alors que j’avais surtout étudié la géographie, l’histoire, le calcul et la grammaire et je dis au petit bonhomme (avec un peu de mauvaise humeur) que je ne savais pas dessiner. Il me répondit:
+
+— Ça ne fait rien. Dessine-moi un mouton.
+
+Comme je n’avais jamais dessiné un mouton je refis, pour, un des deux seuls dessins dont j’était capable. Celui du boa fermé. Et je suis stupéfait d’entendre le petit bonhomme ne répondre:
+
+– Non! Non! Je ne veux pas d’un éléphant dans un boa.
