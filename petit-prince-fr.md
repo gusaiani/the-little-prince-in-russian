@@ -50,4 +50,14 @@ Quand le mystère est trop impressionant, on n’ose pas désobéir. Aussi absur
 
 Comme je n’avais jamais dessiné un mouton je refis, pour, un des deux seuls dessins dont j’était capable. Celui du boa fermé. Et je suis stupéfait d’entendre le petit bonhomme ne répondre:
 
-– Non! Non! Je ne veux pas d’un éléphant dans un boa.
+– Non! Non! Je ne veux pas d’un éléphant dans un boa. Un boa c’est très dangereux, et un éléphant c’est très encombrant. Chez mois c’est tout petit. J’ai besoin d’un mouton. Dessine-moi un mouton.
+
+Alors j’ai dessiné.
+
+Il regarda attentivement, puis:
+
+– Non! Celui-là est déjà très malade. Fais-en un autre.
+
+Je dessinai.
+
+Mon ami sourit gentiment, avec indulgence:
