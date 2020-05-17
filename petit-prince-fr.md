@@ -61,3 +61,31 @@ Il regarda attentivement, puis:
 Je dessinai.
 
 Mon ami sourit gentiment, avec indulgence:
+
+— Tu vois biens…ce n’est pas un mouton, c’est un bélier. Il a des cornes…
+
+Je refis donc encore mon dessin:
+
+Mais il fut refusé, comme les précédents:
+
+— Celui-là est trop vieux. Je veux un mouton qui vive longtemps.
+
+Alors, faute de patience, comme j’avais hâte de commencer le démmontage de mon moteur, je griffonai ce dessin-ci.
+
+Et je lançai:
+
+— Ca c’est la caisse. Le mouton que tu veux est dedans.
+
+Mais je fus bien surpris de voir s’illuminer le visage de mon jeune juge:
+
+– C’est tout à fait comme ça que je le voulais? Crois-tu qu’il faille beaucoup d’herbe à ce mouton?
+
+– Pourquoi?
+
+— Parce que chez moi c’est tout petit…
+
+— Ca suffira sûrement. Je t’ai donné un tout petit mouton.
+
+Il pencha la tête vers le dessin:
+
+— Pas si petit que ça… Tiens! Il s’est endormi…
