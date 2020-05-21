@@ -89,3 +89,35 @@ Mais je fus bien surpris de voir s’illuminer le visage de mon jeune juge:
 Il pencha la tête vers le dessin:
 
 — Pas si petit que ça… Tiens! Il s’est endormi…
+
+Et c’est ainsi que je fis la connaissance du petit prince.
+
+3
+
+Il me fallut longtemps pour comprendre d’oú il venait. Le petit prince, qui me posait beaucoup de questions, ne semblait jamais entendre les miennes. Ce sont des mots prononcés par hasard qui, peu à peu, m’ont tout révélé. Ainsi, quand il aperçu por la première fois mon avion (je ne dessinerai pas mon avion, c’est un dessin beaucoup trop compliqué pour moi) il me demanda:
+
+— Qu’est ce que c’est que cette chose-là?
+
+— Ce n’est pas une chose. Ca vole. C’est un avion. C’est mon avion.
+
+Et j’etais fier de lui apprendre que je volais. Alors il s’écria:
+
+— Comment! Tu es tombé du ciel!
+
+– Oui, fis-je modestement.
+
+– Ah! ça c’est drôle…
+
+Et le petit prince eut un très joli éclat de rire qui m’irrita beaucoup. Je désire que l’on prenne mes malheurs au sérieux. Puis il ajouta:
+
+— Alors, toi aussi tu viens du ciel! De quelle planète es-tu?
+
+J’entrevis aussitôt une lueur, dans le mystere de sa présence, et j’interoogeai brusquement:
+
+— Tu viens donc d’une autre planète?
+
+Mais il ne me répondit pas. Il hochait la tête doucement tout en regardant mon avion:
+
+— C’est vrai que, là-dessus, tu ne peux pas venir de bien loin…
+
+Et il s’enfonça dans une rêverie qui dura longtemps. Puis, sortant mon mouton de sa poche, il se plongea dans la contemplation de son trésor.
