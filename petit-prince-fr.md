@@ -120,4 +120,4 @@ Mais il ne me répondit pas. Il hochait la tête doucement tout en regardant mon
 
 — C’est vrai que, là-dessus, tu ne peux pas venir de bien loin…
 
-Et il s’enfonça dans une rêverie qui dura longtemps. Puis, sortant mon mouton de sa poche, il se plongea dans la contemplation de son trésor. test
+Et il s’enfonça dans une rêverie qui dura longtemps. Puis, sortant mon mouton de sa poche, il se plongea dans la contemplation de son trésor.
