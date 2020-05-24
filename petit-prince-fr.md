@@ -121,3 +121,33 @@ Mais il ne me répondit pas. Il hochait la tête doucement tout en regardant mon
 — C’est vrai que, là-dessus, tu ne peux pas venir de bien loin…
 
 Et il s’enfonça dans une rêverie qui dura longtemps. Puis, sortant mon mouton de sa poche, il se plongea dans la contemplation de son trésor.
+
+Vous imaginez combien j’avais pu être intrigué par cette demi-confidence ser “les autres planètes”. Je m’efforçai don d’en savoir plus long:
+
+— D’où vies-tu mon petit bonhomme? Où est-ce “chez toi”? Où veux-tu emporter mon mouton?
+
+Il me répondit après un silence méditatif:
+
+— Ce qui est bien, avec la caisee que tu m’as donnée, c’est que, la nuit, ça lui servira de maison.
+
+— Bien sûr. Et si tu es gentil, je te donnerai aussi une corde pour l’attacher pendant le jour. Et un piquet.
+
+La proposition parut choquer le petit prince:
+
+— L’attacher? Quelle drôle d’idée!
+
+— Mais si tu ne l’attaches pas, il ira n’importe où, et il se perdra…
+
+Et mon ami eut un nouvel éclat de rire:
+
+— Mais où veux-tu qu’il aille!
+
+— N’importe où. Droit devant lui…
+
+Alors le petit prince remarqua gravement:
+
+— Ca ne fait rien, c’est tellement petit, chez moi!
+
+Et, avec un peu de mélancolie, peut-être, il ajouta:
+
+- Droit devant soi on ne peut pas aller bein loin…
