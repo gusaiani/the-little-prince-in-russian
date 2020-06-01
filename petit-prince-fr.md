@@ -151,3 +151,19 @@ Alors le petit prince remarqua gravement:
 Et, avec un peu de mélancolie, peut-être, il ajouta:
 
 - Droit devant soi on ne peut pas aller bein loin…
+
+4
+
+J’avais ansi appris une second chose très importante: C’est que sa planète était à peine plus grande qu’une maison!
+
+Ca ne pouvait pas m’étonner beaucoup. Je savais bie qu’en dehors des grosses planètes comme la Terre, Jupiter, Mars, Vénus, auxquelles on a donné des noms, il y en a des centaines d’autres qui sont quelque-fois si petites qu’on a beaucoup de mal à les apercevoir au téléscope. Il l’appelle par example: “l’asteroid 3251.”
+
+J’ai de sérieuses raisons de croire que la planète d’ou venait le petit prince est l’asteroide B 612.
+
+Cet astéroide n’a été aperçu qu’une fois au télescope, en 1909, par un astronome turc.
+
+Il avait fait alors une grande démonstration de sa découverte à un Congrès International d’Astronomie.
+
+Mais personne ne l’avait cru à cause de son costume. Les grands personnes sont comme ça.
+
+Heureusement, pour la réputation de l’astéroide B 612 un dictateur turc imposa à son peuple, sous peine de mort, de s’habiller à l’Européenne. L’astronome refit se démonstration en 1920, dans un habit trés élégant. Et cette fois-ci tout le monde fut de son avis.
