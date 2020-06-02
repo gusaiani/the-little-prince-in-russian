@@ -167,3 +167,5 @@ Il avait fait alors une grande démonstration de sa découverte à un Congrès I
 Mais personne ne l’avait cru à cause de son costume. Les grands personnes sont comme ça.
 
 Heureusement, pour la réputation de l’astéroide B 612 un dictateur turc imposa à son peuple, sous peine de mort, de s’habiller à l’Européenne. L’astronome refit se démonstration en 1920, dans un habit trés élégant. Et cette fois-ci tout le monde fut de son avis.
+
+Si je vous ai raconté ces détails sur l’astéroide B 612 et si je vous ai confié son numéro, c’est à cause des grandes personnes. Les grandes personnes aiment les chiffres. Quand vous leur parlez d’un nouvel ami, elles ne vous questionnent jamais sur l’essentiel.
