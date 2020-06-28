@@ -177,3 +177,15 @@ Mais, bien sûr, nous qui comprenons la vie, nous nous moquons bie des numéros!
 “Il était une fois un petit prince qui habitait une planète à peine plus grande que lui, et qui avait besoin d’un ami…” Pour ceux qui comprennent la vie, ça aurait eu l’air beaucoup plus vrai.
 
 Car je n’aime pas qu’on line mon livre à la légère, j’éprouve tant de chagrin à raconter ces souvenirs. Li ya siz ans déjà que mon ami s’en est allé avec son mouton. Si j’essaie ici de le décrire, c’est afin de ne pas l’oublier. C’est triste d’oublier un ami. Tout le monde n’a pas eu un ami. Et je puis devenir commme les grandes personnes qui ne s’intéressent plus qu’aux chiffres. C’est donc pour ça encore que j’ai acheté une boîte de couleurs et des crayons. C’est dur de se remettre au dessin, à mon âge, quand on n’a jamais fait d’autres tentatives que celle d’un boa fermé et celle d’un boa ouvert, à l’âge de six ans! J’essayerais bien sûr, de fair des portraits le plus ressemblants possible. Mais je ne suis pas tout à fait certain de réussir. Un dessin va, et l’autre ne ressemble plus. Je me trompe un peu aussi sur la taille. Ici le petit prince est trop grand. Là is est trop petit. J’hésite aussi sur la couleur de son costume. Alors je tâtonne comme ci et comme ça, tant bie que mal. Je me tromperai enfin sur certains détails plus importants. Mais ça, il faudra me le pardonner. Mon ami ne donnait jamais d’explications. Il me croyait peut-être sembrable à lui. Mais moi, malhereusement, je ne sais pas voir les moutons à travers les caisses. Je suis peut-être un peu comme les grandes personnes. J’ai dû vieillir.
+
+5
+
+Chaque jour j’apprennais quelque chose sur la planète, sur le départ, sur le voyage. Ca venait tout doucement, au hasard des réflexions. C’est ainsi que, le troisième jour, je connus le drame des baobabs.
+
+Cette fois-ci encore fut grâce au mouton, car brusquement le petit prince m’interrogea, comme pris d’un doute grave:
+
+— C’est bie vrai, n’est-ce pas, que les moutons mangent les arbustes?
+
+— Oui. C’est vrai.
+
+— Ah! Je suis content.
