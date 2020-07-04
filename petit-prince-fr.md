@@ -189,3 +189,13 @@ Cette fois-ci encore fut grâce au mouton, car brusquement le petit prince m’i
 — Oui. C’est vrai.
 
 — Ah! Je suis content.
+
+Je ne compris pas pourquoi il était si important que les moutons mangeassent les arbustes. Mais le petit prince ajouta:
+
+— Par conséquent ils mangeant aussi les baobabs?
+
+Je fis remarquer au petit prince que les baobabs ne sont pas des arbustes, mais des arbres grand comme des églises et que, si même il emportait avec lui tout un troupeau d’éléphants, ce troupeau ne viendrait pas à bout d’un seul baobab.
+
+L’idée du troupeau d’éléphants fit rire le petit prince:
+
+— Il faudrait les mettre les uns sur les autres…
