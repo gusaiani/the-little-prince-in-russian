@@ -199,3 +199,11 @@ Je fis remarquer au petit prince que les baobabs ne sont pas des arbustes, mais 
 L’idée du troupeau d’éléphants fit rire le petit prince:
 
 — Il faudrait les mettre les uns sur les autres…
+
+Mais il remarqua avec sagesse:
+
+— Les baobabs, avant de grandir, ça commence par être petit.
+
+— C’est exact! Mais pourquoi veux-tu que tes moutons mangent les petits baobabs?
+
+Il me répondit: “Ben! Voyons!” comme il s’agissait là d’une évidence. Et il me fallut un grand effort d’intelligence pour comprendre à moi seul ce problème.
