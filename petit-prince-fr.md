@@ -207,3 +207,5 @@ Mais il remarqua avec sagesse:
 — C’est exact! Mais pourquoi veux-tu que tes moutons mangent les petits baobabs?
 
 Il me répondit: “Ben! Voyons!” comme il s’agissait là d’une évidence. Et il me fallut un grand effort d’intelligence pour comprendre à moi seul ce problème.
+
+Et en effet, sur la planète du petit prince, il y avait comme sur toutes les planètes, de bonnes herbes et de mauvaises herbes. Par conséquent de bonnes graines de bonnes herbes et de mauvaises graines de mauvaises herbes. Mais les graines sont invisibles. Elles dorment das le secrèt de la terre jusqu’à ce qu’il prenne fantaisie à l’une d’elles de se réveiller. Alors elle s’étire, et pousee d’abord timidement vers le soleil uns ravissante petite brindille de radis ou de rosier, on peut la laisser pousser comme elle veut.
